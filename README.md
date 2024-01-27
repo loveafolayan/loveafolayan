@@ -2,7 +2,7 @@
 - 👀 I’m interested in Football
 - 🌱 I’m currently learning Javasxript
 - 💞️ I’m looking to collaborate on Python
-- 📫 How to reach me @love_afolayan on twitter
+- 📫 How to reach me @love_afolayan on X(Twitter) 
 - 😄 Pronouns: He
 - ⚡ Fun fact: ...
 
